@@ -11,7 +11,7 @@ https://anonfiles.com/LfS0EeU8uf/Cypher_Rat_Cracked_zip
 
 Tested on Android: 5.6,7, 8,9,10,11
 
-# Application Features:
+# Application Features:.
 
 #Manage:
 - Files
