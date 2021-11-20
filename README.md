@@ -46,4 +46,4 @@ super mode:
 - Auto Click Start Screen Record
 - New Fake App Skin Changer
 - Anti shutdown phone
-------------
+-----------
