@@ -6,6 +6,10 @@ Cypher Rat is new Android Remote Tool 2021 Allows you to Control Your Android Ph
 
 https://anonfiles.com/LfS0EeU8uf/Cypher_Rat_Cracked_zip
 
+or
+
+https://ufile.io/qx0jfjdi
+
 # UI
 ![Cypher](https://user-images.githubusercontent.com/94209728/141606471-b4753e54-b9c1-4aba-83b7-bbf63bfd7ac3.PNG)
 
